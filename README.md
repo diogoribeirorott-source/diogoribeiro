@@ -29,11 +29,11 @@ UDF — Engenharia de Software
 
 Graduação em andamento.
 
-🔗 Contato
 
-💼 LinkedIn: Meu LinkedIn
 
-📧 E-mail: COLOQUE_AQUI_SEU_EMAIL
+💼 LinkedIn:www.linkedin.com/in/diogo-ribeiro-73098443b
+
+📧 E-mail: diogoribeirorott@gmail.com
 
 📚 Projetos
 
